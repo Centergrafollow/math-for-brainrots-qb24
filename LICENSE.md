@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with math for brainrots rare Script, the #1 Script. Includes god mode and no clip for unbeatable
 
 
 
